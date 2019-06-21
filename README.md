@@ -18,7 +18,7 @@ Try it. To see this, you must do a few things:
 
 Here's a link to the exact timestamp that you can clearly see an eel come into the frame and start eating him. https://www.youtube.com/watch?v=cRj0lymMMGs#t=6m43s
 
-I would mark this NSFW, but most people I show this to don't seem to see anything at all. There are a few points to support this being true:
+Most people I show this to don't seem to see anything at all. There are a few points to support this being true:
 
 - You can see debris floating around that Yuri clearly could not have generated. For example, pieces of plastic from his diving equipment. You can also see shreds of his suit floating around.
 
